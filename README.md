@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Audience9
+- 👀 I’m interested in  learning new things.
